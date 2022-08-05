@@ -17,6 +17,6 @@
 
 **ᴇɴᴊᴏʏ ᴘᴀᴅᴀɢᴏ**
 
-➠ [ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon) ғᴏʀ [``ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs``](https://github.com/telugucoderss) 
+➠ [ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon) ғᴏʀ [``Telugu-coders``](https://github.com/telugucoderss) 
 
-➠ [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) ғᴏʀ [``ᴍᴀᴅᴇ ғᴏʀ ᴛʜɪs``](https://t.me/tgshadow_fighters) 
+➠ [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) ғᴏʀ [``Made for this``](https://t.me/tgshadow_fighters) 
