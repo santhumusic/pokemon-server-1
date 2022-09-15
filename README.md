@@ -2,7 +2,6 @@
 
 ➠ ᴍᴀᴅᴇ ᴡɪᴛʜ ʟᴏᴠᴇ ʙʏ [ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon)``&`` [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) 
  
-sᴘᴇᴄɪᴀʟ ᴛʜᴀɴᴋs❤ ᴛᴏ [ᴀᴅɪᴛʏᴀ](https://t.me/AdityaHalder)
 
 ➠ ɴᴇxᴛ ɢᴇɴᴇʀᴀᴛɪᴏɴ sᴇʀᴠᴇʀ 
 
